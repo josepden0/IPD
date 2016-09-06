@@ -14,7 +14,7 @@ Add your name to the list below:
 9. 
 10. 
 11. 
-12. Caleb Berger 
+12.  
 13. 
-14.  
+14. Denis Joseph 
 15. 
