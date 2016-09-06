@@ -4,7 +4,7 @@ Classroom collaboration to explore best algorithmic strategies in the IPD
 Add your name to the list below:
 
 1.  
-2. 
+2. Mohammed Dabdoub
 3. 
 4. 
 5. 
@@ -14,7 +14,7 @@ Add your name to the list below:
 9. 
 10. 
 11. 
-12. Caleb Berger 
+12.  
 13. 
 14.  
 15. 
